@@ -1,1 +1,1 @@
-# Natours
+# VIEW: https://palashkumer.github.io/Natours/
